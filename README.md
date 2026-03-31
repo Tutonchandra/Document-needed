@@ -11,3 +11,8 @@ Project: https://github.com/faisal-shohag/m6-ai-model-hub
 Abu Nayim Faisal
 11:59 PM
 https://drive.google.com/file/d/1PA-KyF1t41mtNeNpr0skZBST84GXxDNG/view?usp=sharing
+
+
+CV:[TutonChandraSutradharCV.pdf](https://github.com/user-attachments/files/26366866/TutonChandraSutradharCV.pdf)
+
+cover letter: [Tuton_CV_CoverLetter_Reneta.pdf](https://github.com/user-attachments/files/26366892/Tuton_CV_CoverLetter_Reneta.pdf)
