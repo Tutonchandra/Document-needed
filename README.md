@@ -15,4 +15,6 @@ https://drive.google.com/file/d/1PA-KyF1t41mtNeNpr0skZBST84GXxDNG/view?usp=shari
 
 CV:[TutonChandraSutradharCV.pdf](https://github.com/user-attachments/files/26366866/TutonChandraSutradharCV.pdf)
 
+docs link: https://1drv.ms/w/c/b270758fb68bf162/IQC33Y1fznBsR7pU4s_Pvu9MAaqSq92DFbMrXim64Ujzn_c?e=etCdLC
+
 cover letter: [Tuton_CV_CoverLetter_Reneta.pdf](https://github.com/user-attachments/files/26366892/Tuton_CV_CoverLetter_Reneta.pdf)
